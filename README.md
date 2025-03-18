@@ -1,0 +1,2 @@
+# DCC831-TECC_Fundamentos_Estatisticos_de_Ciencia_dos_Dados_B
+ 
